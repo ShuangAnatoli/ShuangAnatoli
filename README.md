@@ -1,5 +1,6 @@
 *Cue the beep blop beep blop*
 ૮ ˶ᵔ ᵕ ᵔ˶ ა
+
 I'm on a first name basis with the ghost that haunts my bedroom. They are pretty funny.
 
 Plants are dying and the rice is getting cold... Also the bread is soggy :000
